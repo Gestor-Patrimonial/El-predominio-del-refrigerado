@@ -1,1 +1,2 @@
 # El-predominio-del-refrigerado
+Este acontecimiento presenta dos aspectos: el que se refiere al consumo y el que afecta a la producción. El primero está directamente vinculado a la rehabilitación de la economía mundial, que ocurrió en Europa durante la década de los 1920 y que en Gran Bretaña tuvo todo el aspecto de una vuelta a los mejores años de la era victoriana. El refrigerador no era ciertamente un alimento destinado a la clase obrera inglesa, sino a los sectores mejor situados. 
